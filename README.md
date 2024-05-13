@@ -1,1 +1,0 @@
-# ar_vistaoz366w
